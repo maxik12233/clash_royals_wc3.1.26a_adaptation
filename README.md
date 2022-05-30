@@ -1,0 +1,1 @@
+# clash_royals_wc3.1.26a_adaptation
